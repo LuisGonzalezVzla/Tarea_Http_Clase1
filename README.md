@@ -1,1 +1,1 @@
-Me equivoqué es tardea de HTML
+Me equivoqué es tarea de HTML
